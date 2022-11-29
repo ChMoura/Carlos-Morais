@@ -9,8 +9,14 @@
 🕹°As ferramentas que estou trabalhando no momento é, Blender, unity, fusion 360 , ultimaker  cura 5, Photoshop entre outros programas da adobe e da autodesk.
 
 Para contato profissional meu email: carlos.morais29@etec.sp.gov.br ou rick_morais18@hotmail.com
-minhas rede sociais: 
+
+minhas rede sociais:
+ 
 https://www.instagram.com/ch_morais26/ 
+
 https://www.facebook.com/profile.php?id=100002456979063
+
 https://www.linkedin.com/in/carlos-henrique-199475211/
+
 https://www.workana.com/e/ad69e21d0b92d13866bb9e1d00c0a0fe?ref=user_dropdown
+
