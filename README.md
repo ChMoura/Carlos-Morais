@@ -14,7 +14,6 @@ Para contato profissional meu email: carlos.morais29@etec.sp.gov.br ou rick_mora
   <img align="center" alt="Rafa-Js" height="30" width="40" src="https://raw.githubusercontent.com/devicons/devicon/master/icons/javascript/javascript-plain.svg">
 
   <img align="center" alt="Rafa-Csharp" height="30" width="40" src="https://raw.githubusercontent.com/devicons/devicon/master/icons/csharp/csharp-original.svg">
-/Publicacoes_Instagram_1_1.png?width=676&height=676">
 </div>
 
 
